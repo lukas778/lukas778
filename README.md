@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lukas778
+- 👀 I’m interested in Javascript, pyton
+- 🌱 I’m currently learning Pyton
+- 💞️ I’m looking to collaborate on You ;)
+- 📫 How to reach me Lukas.49786@gmail.com
